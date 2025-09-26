@@ -1,7 +1,7 @@
 ### 👋 Hey there, I'm Subhom!
 
 🎨 Digital art enthusiast by passion,  
-🌍 Language explorer (currently diving into German 🇩🇪),  
+🌍 Language explorer (currently diving into Spanish 🇪🇸),  
 🤝 Always up for creative collabs — let's build something cool together!  
 📧 Reach me at: [subhomkundu@gmail.com](mailto:subhomkundu@gmail.com)
 
